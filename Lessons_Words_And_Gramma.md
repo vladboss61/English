@@ -1885,3 +1885,53 @@ that is way - таким образом
 
 I am going to have *to let you go* first - увольнять кого то
 
+Listen to the converstation between the student and collage administrator
+
+Hi how can i help you ?
+i am looking for the chemistry professor Deen, is it the foor where he works ?
+he will be back until the sunday he will be in other state
+can we need waiting till that ?
+Ohh no, i often trip next week, and i really need to talk to him now
+
+yeah if he still looking for one.
+
+talked talked
+took taken
+
+artisan - ремесленник
+tuck in - start eating with entusiasmo
+posses - владеть или обладать
+polish off - to finish wiht someting (more often used in context of food.)
+gulp - глоток
+gulp of fresh air (familar to swallow)
+flavoursome - delicious
+
+brew - to make a coffie or tea with hot water and beans.
+
+temtating object - соблазнительный обьект (temptation - соблазнение)
+restless - беспокойный (лишенный спокойствия)
+to relieve boredom - избавиться от скуки
+stimulation is perceived(воспринимаемый) as (example: you perceived that situation as.... ты воспринял эту ситуацию как..)
+sensory deprivation(лишение, потеря) - reduction or removal of stimuli from one or more of the senses. 
+conducted experiments проводить эксперимент
+interrogation - допрос
+keep you buoyant(плавучий) - оставаться на плаву
+subterranean float lab (terra) subterranean - подземный 
+getting guidance - получение руководства
+getting him prepped for (prepped = prepared)
+take a peek - подгялдывать
+
+Do-Support: Do you live in Englend ? (When we have do in the beggining)
+
+i have a cat == i have a cat == i got a cat.
+
+__feel like__
+
+**This statement is abount - have to do something right now...**
+Example: He was so rude, I felt like leaving immediately.
+
+so that - так что бы
+change code so that code will work
+
+it is not fair - не честно
+it is not fair towards people
