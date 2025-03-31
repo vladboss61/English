@@ -1916,7 +1916,7 @@ sensory deprivation(лишение, потеря) - reduction or removal of stim
 conducted experiments проводить эксперимент
 interrogation - допрос
 keep you buoyant(плавучий) - оставаться на плаву
-subterranean float lab (terra) subterranean - подземный 
+subterranean float lab (terra) subterranean - подземный
 getting guidance - получение руководства
 getting him prepped for (prepped = prepared)
 take a peek - подгялдывать
@@ -1935,3 +1935,8 @@ change code so that code will work
 
 it is not fair - не честно
 it is not fair towards people
+
+__12/09/2024__
+anticipate - ожидать
+perceive - восприятие
+sight - взгляд
